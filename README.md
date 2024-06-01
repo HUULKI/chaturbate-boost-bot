@@ -29,9 +29,9 @@ A large number of accounts of colorful members enter the stream on schedule, don
 - We show how to use software
 - Free updates
 
-## 💵 🔝
+## 💵 Your personal boost🔝
 
-- Your personal boost, you can independently raise any model with GUARANTEE to the TOP with 1 button and earn bigger money every work day, using our software.
+- You can independently raise any model with GUARANTEE to the TOP with 1 button and earn bigger money every work day, using our software.
 
 ![Alt Text](/foto.png)
 
